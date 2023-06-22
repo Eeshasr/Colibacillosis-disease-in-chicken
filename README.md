@@ -1,1 +1,0 @@
-# Colibacillosis-disease-in-chicken
